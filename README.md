@@ -1,3 +1,3 @@
 # code
 notes 
-https://www.ccqtgb.com
+https://ccqtgb.com
