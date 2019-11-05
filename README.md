@@ -1,6 +1,6 @@
 # code
 notes 
-https://ccqtgb.com
+https://ccqtgb
 
 
 swderdwdd
