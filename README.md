@@ -1,8 +1,4 @@
 # code
 notes 
-http://www.ccqtgb.com
-三峡
+http://www.ccqtgb
 https://www.sanxiapay.com
-
-
-swderdwdd
